@@ -1,0 +1,2 @@
+# premium-encaustic-wax-001-encaustic-wax-painting-heat
+Tired of losing your encaustic experiments in a haze of wax and heat? Your process deserves a clean, digital lab notebook.  This template turns your encaustic studio into a well-organized lab. Log every heat fuse session, track pigment ratios, document temperature curves, and catalog finished pieces—all in one central Notion workspace. Stop relying
